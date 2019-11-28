@@ -17,8 +17,7 @@ http://line.me/ti/p/XI-Ksj7Jzq
 [![Line-_QR.jpg](https://s26.postimg.cc/dwuoozv15/Line-_QR.jpg)](https://postimg.cc/image/mrvizijth/)
 
 http://androidthai.in.th
-
-http://swiftcodingthai.com    
+ 
 
 phrombutr@gmail.com
 
